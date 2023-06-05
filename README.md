@@ -1,0 +1,1 @@
+# LapKI_RivaMahyuli_478709_Pertemuan12
